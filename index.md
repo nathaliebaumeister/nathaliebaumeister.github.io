@@ -11,7 +11,7 @@ Asterix und Obelix! Und natürlich das kleine Hündchen Idefix.
 * Alles essen, was man ihnen vorsetzt
 * Durch Hilfe des Zaubertrankes
 
-Natürlich ist unser aller Lieblingsspruch
+Natürlich ist unser aller Lieblingsspruch :-)
 
 > Die spinnen, die Römer!
 
