@@ -1,4 +1,4 @@
-# Platz da für Asterix und Obelix!!!
+# Platz da für Asterix und Obelix!!!!
 
 Juni 2020. Die ganze Welt ist vom irren Corona befallen.
 Die ganze welt? Nein, nicht die ganze :-) Ganz oben in der Ecke ist noch ein freies,
