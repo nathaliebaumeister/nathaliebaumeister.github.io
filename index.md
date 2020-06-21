@@ -1,11 +1,11 @@
-# Platz da für Asterix und Obelix!
+# Platz da für Asterix und Obelix!!!
 
 Juni 2020. Die ganze Welt ist vom irren Corona befallen.
 Die ganze welt? Nein, nicht die ganze :-) Ganz oben in der Ecke ist noch ein freies,
 nicht verseuchtes Dorf. Und dort wohnen wie immer meine Helden. 
 Asterix und Obelix! Und natürlich das kleine Hündchen Idefix. 
 
-## Asterix und Obelix können alles
+## Asterix und Obelix können doch alles:
 * Römer besiegen
 * Wildschweine fangen
 * Alles essen, was man ihnen vorsetzt
